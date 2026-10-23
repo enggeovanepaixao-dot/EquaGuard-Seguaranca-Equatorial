@@ -1,0 +1,1 @@
+# EquaGuard-Seguaranca-Equatorial
